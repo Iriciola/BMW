@@ -8,6 +8,4 @@ Made by @Iriciola.
 
 Credits to @LAMOUR-ART,
 @AMBADY KOLAZHIKKARAN,
-@d30visuals,
-
-Credits to @duleemahum for his video.
+@d30visuals
